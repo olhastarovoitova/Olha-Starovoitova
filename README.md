@@ -1,2 +1,0 @@
-# Olha-Starovoitova
-Portfolio
